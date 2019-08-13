@@ -1,2 +1,0 @@
-# skinali
-Skinali №1
